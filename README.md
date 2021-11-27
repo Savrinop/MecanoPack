@@ -5,6 +5,8 @@ Il est en RageUI V2
 
 Disponible sur Aqua développement : https://discord.gg/JdYfB5qxYV
 
+Voici la preview : https://www.youtube.com/watch?v=JPCf3UA6ZZM
+
 Si vous voulez de l'aide pour le sql vener me mp ;)
 
 By Savrinop
